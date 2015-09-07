@@ -2,6 +2,7 @@
 >####September 7, 2015 9:07 PM
 >####theManagement
 >####Writing by : Solitar Zhou
+>####Reference resources : Fundamentals of Management
 
 
 *****
